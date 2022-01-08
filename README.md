@@ -6,3 +6,5 @@ The project consists of a simple HTML document which will have links to some rec
 Lessgooooo. 
 10:20 
 my pc lagged, I had to turn it off and I waited around 30 mins before being able to use it again ;)
+15.47, I finished it
+i got lazy
