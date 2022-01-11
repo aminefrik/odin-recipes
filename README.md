@@ -8,3 +8,7 @@ Lessgooooo.
 my pc lagged, I had to turn it off and I waited around 30 mins before being able to use it again ;)
 15.47, I finished it
 i got lazy
+Adding some css lesssgooo/you btw idk why the text is all clutered and stuff, i mean why isn't gooing to the the line/
+
+
+..........
